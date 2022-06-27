@@ -1,0 +1,2 @@
+# weguidetech
+Affiliate
